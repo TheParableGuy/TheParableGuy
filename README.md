@@ -1,6 +1,10 @@
 # ABOUT ME!
 
 
+![image](https://github.com/user-attachments/assets/57988aa6-b2cf-4a4b-9118-2be109930b7d)
+
+
+
  
 
  Hi. My name is **Stanley**! I am a fictionkin of stanley from The Stanley Parable. If i dont respond by your whisper, chat, or anything, i am off the tab. 

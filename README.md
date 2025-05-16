@@ -20,6 +20,9 @@ I am often online after work, or during weekends.
 
 ![tumblr_4a698f81f140cacef51b3d6073a369e2_794f0b3d_540](https://github.com/user-attachments/assets/242d4dc6-6041-4917-8488-85fb2ba57435)
 
+![image](https://github.com/user-attachments/assets/929d1097-8a43-40f1-a8ee-0a8681ae21d9)
+
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ◣━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━◢
 
 

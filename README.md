@@ -22,7 +22,7 @@
 
 .
 ,
-ㅤ![hippo](https://i.pinimg.com/originals/47/09/75/470975f6255df5edfc7c157d6f13ed20.gif)
+ㅤ![hippo](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExM2NocGsxNzJzcG9mcjIyYzVrNHgzcDJ5dHN3bTZudXk0ODZvMjhudCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/WvQNnMcTsOy8RAaK4m/giphy.gif)
 
 
 
@@ -35,7 +35,7 @@
 
 ***. MINORS DNI .***
 
-, **DNI :  Pedos/groomers, proshipers, endo systems, transphobia and homophobia.**
+, **DNI : BASIC DNI CRITERIA: Pedos/groomers, proshipers, endo systems, transphobia and homophobia.**
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
@@ -47,7 +47,7 @@
 
 
 
-![hippo](https://i.pinimg.com/originals/57/a4/b2/57a4b281c548fc0840290d359679374b.gif)
+![hippo](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExb2Rnb2ZxNHk1dWxlcmU0bG00Yzd2cHo5czR0MWptMTc2bDU1dGk2MSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/2l9yjNsfgxt3sVt6zk/giphy.gif)
 
 
 

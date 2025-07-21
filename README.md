@@ -37,10 +37,6 @@
 
 , **DNI :  Pedos/groomers, proshipers, endo systems, transphobia and homophobia.**
 
-
-
-CHECK OUT MY STRAWPAGE!
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ

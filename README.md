@@ -22,7 +22,7 @@
 
 .
 ,
-ㅤ![hippo](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExM2NocGsxNzJzcG9mcjIyYzVrNHgzcDJ5dHN3bTZudXk0ODZvMjhudCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/WvQNnMcTsOy8RAaK4m/giphy.gif)
+ㅤ![hippo](https://i.pinimg.com/736x/04/41/a9/0441a92c7ce413dae90f8afec46f0149.jpg)
 
 
 
@@ -47,7 +47,7 @@
 
 
 
-![hippo](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExb2Rnb2ZxNHk1dWxlcmU0bG00Yzd2cHo5czR0MWptMTc2bDU1dGk2MSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/2l9yjNsfgxt3sVt6zk/giphy.gif)
+![hippo](https://i.pinimg.com/736x/9c/c4/30/9cc4301f9e9d7fb91e5a9488d5688923.jpg)
 
 
 
